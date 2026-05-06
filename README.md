@@ -1,0 +1,2 @@
+# Amalyot
+guruh bulib ishlash
